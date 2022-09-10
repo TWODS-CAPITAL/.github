@@ -36,3 +36,15 @@ of you with us, on this journey.🚀 </b></p>
 <a href="https://instagram.com/twods_capital" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="twods_capital" height="30" width="40" /></a>
 <a href="/https://twodscapital-blog.digitalpress.blog" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/rss.svg" alt="https://twodscapital-blog.digitalpress.blog" height="30" width="40" /></a>
 </p>
+
+<h1 align="center">Contact TWODS Capital🚀</h1>
+
+- Email <a href="mailto:twodscapital@gmail.com">TWODS Capital</a>
+- Email <a href="mailto:chintz0952@gmail.com">Chintz Ruparel</a>
+- GitHub Direct Message 
+- You can also connect with us on Instagram 
+
+<h1 align="center">Happy Investing🎗</h1>
+
+<i><b>Disclaimer</b> - We at TWODS Capital use multiple products and features form third party application. The IPR (Intellectual Property Right) and Ownership Rights belong to the sole owners. </i>
+
